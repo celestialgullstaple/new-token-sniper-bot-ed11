@@ -1,4 +1,4 @@
-# 
+# vip new token sniper bot | volume-spike-detection + liquidity-pool-analysis offers the most advanced new token sniper bot, with volume-spike-detection and liquidity-pool-analysis.
 
 
 
